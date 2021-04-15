@@ -1,0 +1,2 @@
+# khushi
+allow
